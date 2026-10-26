@@ -2,7 +2,7 @@
 
 ### Socials
 
-1. Instagram: https://instagram.com/rithv1k
+1. Instagram: https://instagram.com/rithv1k7
 2. Website: https://rithvikshetty.in
 3. Linkedin: https://linkedin.com/rithvikshetty
 
